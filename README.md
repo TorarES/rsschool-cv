@@ -1,1 +1,0 @@
-https://TorarES.github.io/rsschool-cv/cv
